@@ -3,3 +3,4 @@
 
 # na miescie dym u u u
 # kongo to my
+# lukaszek i jego bmw xd
